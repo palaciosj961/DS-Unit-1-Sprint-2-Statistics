@@ -11,7 +11,7 @@ working on for your project week.
 ## You
 
 What do you care about?
-
+I care about biology and 
 
 What do you know about?
 
