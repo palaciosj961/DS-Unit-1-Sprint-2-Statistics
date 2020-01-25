@@ -11,10 +11,10 @@ working on for your project week.
 ## You
 
 What do you care about?
+I care about biology and microorganism.
 
-I care about biology and 
 What do you know about?
-
+I know abit about dieases and bacteria
 
 What decisions do you face?
 
